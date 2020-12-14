@@ -1,1 +1,0 @@
-KAMMI Komisariat Ulul Albab
